@@ -42,9 +42,14 @@ Pour devenir partenaire ou en savoir plus, contactez-nous via notre site.
 
 Nous cherchons des partenaires, bénévoles et donateurs engagés à faire une réelle différence.
 
-Contact :tafutenibahizire@gmail.com ;+243976924300
+Contact :
+Pour toute collaboration ou partenariat : 
+📧 contact@worldlife.org  
+🌐 www.worldlife.org
+tafutenibahizire@gmail.com
 Localisation :Kolwezi, RDC  
 
-Ajout du fichier README avec présentation de l’ONG.  
+
+ ⁠
 
 
